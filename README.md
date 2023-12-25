@@ -1,6 +1,6 @@
 ### 👋 Hi, I’m @PsychoShock
 - 👀 I’m interested in CFX
-- 🌱 I’m currently learning Python!
+- 🌱 Owning MoreLife Roleplay Project!
 - 💞️ I’m looking to collaborate on anything that can help anyone!
 - 📫 Reach me via Discord: PsychoShock#3324
 
