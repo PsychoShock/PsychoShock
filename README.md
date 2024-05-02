@@ -1,5 +1,5 @@
 ### 👋 Hi, I’m @PsychoShock
-- 🌱 Owning MoreLife Roleplay Project!
+- 🌱 Might be working on a project, stay update!
 - 🛤️ Hi CFX!
 - 📫 Reach me via Discord: PsychoShock
 
